@@ -1,4 +1,4 @@
-## Hi there 👋
+## Estudiante de ingenieria en Sistemas de la Informacion //// (2do)
 
 <!--
 **Rolo90-ai/Rolo90-ai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
